@@ -21,6 +21,7 @@ This agreement will be effective from 1 Jan 2023.
 - We have a lot of experience yet we are not perfect, so suggestions for improvement are welcome in a gentle way.
 
 ## We do not accept responsibility for:
+- VCB is a shared facility, it should expected that although we clean the toys, room, bedding etc. there may potentially be transfer of germs from other rabbits. We demand from all our clients to vaccinate their rabbits from Caclici Virus. Despite this unintended consequences may occur, hence issues arising due to sharing of items such as (but not limited to) toys, room, beddings, etc. is not accepted as a liability by VCB. Client bears the risk of sending their rabbit to a shared boarding facility.
 - Additional costs incurred due to additional care requirement
 - Vet Bills
 
